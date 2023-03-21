@@ -1,4 +1,4 @@
-# <Leah's Prework Study Guide>
+# Leah's Prework Study Guide
 
 ## Description
 
